@@ -1,16 +1,15 @@
-## Hi there 👋
+## Seja bem-vindo ao meu perfil 🥔
 
-<!--
-**Luisgugu/Luisgugu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Português:**
+- Olá, meu nome é Luis Gustavo, sou um pequeno entusiasta no mundo da progamação. 
+Espero que goste do meu perfil 😃
 
-Here are some ideas to get you started:
+**English:**
+- Hello, my name is Luis Gustavo, I am a little enthusiast in the world of programming. 
+I hope you like my profile 😃
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**Español:**
+Hola, mi nombre es Luis Gustavo, soy un poco entusiasta en el mundo de la programación. 
+Espero que te guste mi perfil 😃
+
+--------------------------------------
