@@ -9,7 +9,7 @@ Espero que goste do meu perfil 😃
 I hope you like my profile 😃
 
 **Español:**
-Hola, mi nombre es Luis Gustavo, soy un poco entusiasta en el mundo de la programación. 
+- Hola, mi nombre es Luis Gustavo, soy un poco entusiasta en el mundo de la programación. 
 Espero que te guste mi perfil 😃
 
 --------------------------------------
