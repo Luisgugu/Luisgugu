@@ -19,6 +19,5 @@ Espero que te guste mi perfil 😃
 - luisgugu1701@gmail.com - Email pessoal
 - luis.gustavo.silva17@escola.pr.gov.br - Email da escola
 
-![Kleber](https://imgur.com/a/Vssy1Rp)
-
+![Kleber Rodando](https://github.com/user-attachments/assets/55a81bfd-f858-49b7-81a6-f1bbf57dd3f3)
 --------------------------------------
