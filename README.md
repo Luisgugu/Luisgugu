@@ -17,5 +17,5 @@ Espero que te guste mi perfil 😃
 - [Gu Luis](https://www.youtube.com/@guluis._.1701) - YouTube
 - [@guluis._.17](www.tiktok.com/@guluis._.17) - Tiktok
 
-![_](https://imgur.com/a/FIiWgiq)
+![_](<blockquote class="imgur-embed-pub" lang="en" data-id="a/FIiWgiq" data-context="false" ><a href="//imgur.com/a/FIiWgiq"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>)
 --------------------------------------
