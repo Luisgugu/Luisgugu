@@ -16,6 +16,8 @@ Espero que te guste mi perfil 😃
 - [@guluis._.1701](https://www.instagram.com/guluis._.17/) - Instagram
 - [Gu Luis](https://www.youtube.com/@guluis._.1701) - YouTube
 - [@guluis._.17](www.tiktok.com/@guluis._.17) - Tiktok
+- luisgugu1701@gmail.com
+- luis.gustavo.silva17@escola.pr.gov.br
 
-![_](<blockquote class="imgur-embed-pub" lang="en" data-id="a/FIiWgiq" data-context="false" ><a href="//imgur.com/a/FIiWgiq"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>)
+![](https://imgur.com/a/FIiWgiq?third_party=1)
 --------------------------------------
