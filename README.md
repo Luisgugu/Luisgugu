@@ -16,8 +16,8 @@ Espero que te guste mi perfil 😃
 - [@guluis._.1701](https://www.instagram.com/guluis._.17/) - Instagram
 - [Gu Luis](https://www.youtube.com/@guluis._.1701) - YouTube
 - [@guluis._.17](www.tiktok.com/@guluis._.17) - Tiktok
-- luisgugu1701@gmail.com
-- luis.gustavo.silva17@escola.pr.gov.br
+- luisgugu1701@gmail.com - Email pessoal
+- luis.gustavo.silva17@escola.pr.gov.br - Email da escola
 
 ![](https://imgur.com/gallery/kleber-batatinha-0YJYKeP)
 --------------------------------------
