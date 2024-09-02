@@ -19,5 +19,5 @@ Espero que te guste mi perfil 😃
 - luisgugu1701@gmail.com
 - luis.gustavo.silva17@escola.pr.gov.br
 
-![](https://imgur.com/a/FIiWgiq?third_party=1)
+![](https://imgur.com/gallery/kleber-batatinha-0YJYKeP)
 --------------------------------------
