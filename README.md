@@ -20,5 +20,5 @@ Espero que te guste mi perfil 😃
 - luis.gustavo.silva17@escola.pr.gov.br - Email da escola
 
 ![Kleber](https://imgur.com/a/Vssy1Rp)
-https://imgur.com/a/Vssy1Rp
+
 --------------------------------------
