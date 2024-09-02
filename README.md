@@ -13,9 +13,9 @@ I hope you like my profile 😃
 Espero que te guste mi perfil 😃
 
 ## Você pode entrar em contato comigo 📫
-[@guluis._.1701](https://www.instagram.com/guluis._.17/) - Instagram
-[Gu Luis](https://www.youtube.com/@guluis._.1701) - YouTube
-[@guluis._.17](www.tiktok.com/@guluis._.17) - Tiktok
+- [@guluis._.1701](https://www.instagram.com/guluis._.17/) - Instagram
+- [Gu Luis](https://www.youtube.com/@guluis._.1701) - YouTube
+- [@guluis._.17](www.tiktok.com/@guluis._.17) - Tiktok
 
 ![_](https://imgur.com/a/FIiWgiq)
 --------------------------------------
